@@ -7,4 +7,4 @@ header-img: "img/worldmap.jpg"
 ---
 Hvordan for man den bedste udvekslingstur. Her på siden kan du finde ud af alt det du har brug for og meget mere.
 
-1. 
+1. Husk at holde kontakten med ens forældre
