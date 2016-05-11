@@ -9,3 +9,4 @@ Hvordan for man den bedste udvekslingstur. Her på siden kan du finde ud af alt 
 
 1. Husk at holde kontakten med ens forældre
 - Det er vigtig at holde kontakten med ens forældre,
+2. 
