@@ -20,4 +20,4 @@ Hvis man vil have mere at vide om AFS kan man gå på deres hjemmeside lige her.
 
 
 
-[I'm an inline-style link](http://www.afs.dk/)
+[AFS](http://www.afs.dk)
