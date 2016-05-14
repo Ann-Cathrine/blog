@@ -11,3 +11,6 @@ AFS er den ældste organisation her i Danmark der sender unge mennesker ud på u
 
 Hvis man vil have mere at vide om AFS kan man gå på deres hjemmeside lige her.  
 [AFS](http://www.afs.dk)
+
+Man kan også vælge YFU som minder meget om AFS. På YFU kan du komme på udveksling i Europa,Asien,Nordamerika og latinamerika. Du kan godt komme til Afrika kan også men de her. ar ikke de store kontakter derned, så det kan godt blive lidt svært. 
+Priserne her minder igen det samme som AFS, det komme helt an på hvilket lande du vælger, men også hvor langt tid du vil afsted. Hvis man vil have mere af vide om YFU, måske om priserne kan man besøg deres hjemmeside her [YFU](https://udveksling.yfu.dk/udveksling) og på hjemmesiden kan man bestille en broche om alt det de tilbyder.
