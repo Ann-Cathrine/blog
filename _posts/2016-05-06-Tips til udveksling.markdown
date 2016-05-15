@@ -20,5 +20,5 @@ Så derfor har jeg fundet 7 gode råd til dig, der skal på udveksling.
 - Husk nu at få dig et godt forhold til din værtsfamilie, de er din familie for måske et år.
 6. Regler i huset
 - I alle huse er der forskellig regler, så det er vigtig at du finder ud af hvad reglerne for nogle der er i din værtsfamilie, og husk nu at overholde dem. 
-7. Nyd det
+7. Have en god oplevelse.
 - Nogle af dagene kan komme til at virke lidt for meget, derfor er det vigtig at du husker på at du skal nyde denne her oplevelse. 
