@@ -19,4 +19,4 @@ Så derfor har jeg fundet 6 gode råd til dig, der skal på udveksling.
 5. Værtsfamilie 
 - Husk nu at få dig et godt forhold til din værtsfamilie, de er din familie for måske et år.
 6. Regler i huset
-- I alle huse er der forskellig regler, så det er vigtig at du finder ud af hvad reglerne er din værtsfamilie, og husk at overholde dem. 
+- I alle huse er der forskellig regler, så det er vigtig at du finder ud af hvad reglerne for nogle der er i din værtsfamilie, og husk nu at overholde dem. 
