@@ -31,4 +31,4 @@ anden kultur at tage til, så kan man nemmelig snakke om kulturforskelling melle
 5. Dig selv
 - På udveksling kommer du til at lære dig selv bedre kende, måske kan det være at du finder noget du er virkelig god til eller noget du er ikke er god til. 
 
-Det her nogen af fordelne ved udveksling men måske har du nogen andre eller nogen flere fordele end jeg lige kan komme på. 
+Det her nogen af fordelene ved udveksling men måske har du nogen andre eller nogen flere fordele end jeg lige kan komme på. 
