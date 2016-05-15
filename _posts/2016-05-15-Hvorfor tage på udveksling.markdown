@@ -1,6 +1,6 @@
 ---
 layout:     post
-title:      "Hvorfor tage på udveksling"
+title:      "2016-05-15-Hvorfor tage på udveksling"
 author:     "Ann-Cathrine Thrane"
 header-img: "img/worldmap.jpg"
 ---
