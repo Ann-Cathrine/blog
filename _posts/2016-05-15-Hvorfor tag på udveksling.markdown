@@ -5,4 +5,4 @@ date:       2016-05-15
 author:     "Ann-Cathrine Thrane"
 header-img: "img/worldmap.jpg"
 ---
-hej
+Hvorfor tager nogen på udveksling er det bare ikke et sabbatår? Nej udveksling er ikke et sabbatår.
