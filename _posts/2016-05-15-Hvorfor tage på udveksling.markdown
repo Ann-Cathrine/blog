@@ -26,8 +26,7 @@ anden kultur at tage til, så kan man nemmelig snakke om kulturforskelling melle
 3. Venner 
 - At tage på udveksling er fantatiske måde at lære nye folk at kende, det kan være andre udvekslingselever eller folk fra selve landet du er i. Fleste af dem der har været på udveksling siger at de venner de har fået fra udveksling er nogen de stadig snakker med, og nogen af dem snakker stadig med den familie de boede med. 
 4. Du er med til at sprede viden om en anden kultur.
-- Du er med til at skabe mere kulturmåde i hverdagen, som kun er godt, fordi på den måde kan man måske lære at leve i verden hvor vi ikke dommer folk fra andre kultur vi ikke kender til.Har du måske ikke en fordomme om nogle mennesker fra et andet land? Udveksling er en god mulighed for at se om fordom er rigtig.
-            
+- Du er med til at skabe mere kulturmåde i hverdagen, som kun er godt, fordi på den måde kan man måske lære at leve i verden hvor vi ikke dommer folk fra andre kultur vi ikke kender til.Har du måske ikke en fordomme om nogle mennesker fra et andet land? Udveksling er en god mulighed for at se om fordom er rigtig.        
 5. Dig selv
 - På udveksling kommer du til at lære dig selv bedre kende, måske kan det være at du finder noget du er virkelig god til eller noget du er ikke er god til. 
 
