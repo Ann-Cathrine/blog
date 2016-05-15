@@ -18,7 +18,7 @@ Så derfor har jeg fundet 7 gode råd til dig, der skal på udveksling.
 - Skoleaktiviteter er nok den bedste måde at få venner på. Så hvis din skole har det, så sørger for at tage afsted. Husk også at mange af gange har skolerne fodboldhold, så tag ud og støtte dem med nogen venner.
 5. Værtsfamilie 
 - Husk nu at få dig et godt forhold til din værtsfamilie, det er dem du skal leve med i et år.
-6. Regler i huset
+6. Regler i huset.
 - I alle huse er der forskellig regler, så det er vigtig at du finder ud af hvad reglerne for nogle der er i din værtsfamilie, og husk nu at overholde dem. 
 7. Have en god oplevelse.
 - Nogle af dagene kan komme til at virke lidt for meget, derfor er det vigtig at du husker på at du skal nyde denne her oplevelse. 
