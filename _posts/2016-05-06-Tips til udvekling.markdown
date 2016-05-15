@@ -6,7 +6,7 @@ author:     "Ann-Cathrine Thrane"
 header-img: "img/worldmap.jpg"
 ---
 Hvordan for man den bedste oplevelse. Her på siden kan du finde ud af alt det du har brug for og meget mere.
-Så derfor har jeg fundet 6 gode råd til dig, der skal på udveksling.
+Så derfor har jeg fundet 7 gode råd til dig, der skal på udveksling.
 
 1. Husk at holde kontakten med ens forældre
 - Det er vigtig at holde kontakten med ens forældre eller venner fra ens hjemmeland, da man nogle gang godt kan få hjemve.
@@ -20,3 +20,5 @@ Så derfor har jeg fundet 6 gode råd til dig, der skal på udveksling.
 - Husk nu at få dig et godt forhold til din værtsfamilie, de er din familie for måske et år.
 6. Regler i huset
 - I alle huse er der forskellig regler, så det er vigtig at du finder ud af hvad reglerne for nogle der er i din værtsfamilie, og husk nu at overholde dem. 
+7. Nyde det
+- Nogle af dagene kan komme til at virke lidt for meget, derfor er det vigtig at du husker på at du skal nyde denne her oplevelse. 
