@@ -14,3 +14,8 @@ Fordi når du går på skole i et andet lande, vil det hele klart være anderled
 Undervisning vil sikker forgår i et andet sprog, det mest normale er engelsk, og det kan godt komme til at give dig en fordel senere hen i livet. 
 
 Fordi når man skal på universitet forgår undevising sikkert på engelsk, og der har du en fordel fordi du har jo prøvet der før, med at undervisning ikke forgår i det sprog du er vant til fra folkeskolen. Det er måske ikke den største fordel med det er en af dem. De andre fordele ved at være udvekslingstudent, er man lære måske et helt nyt sprog at kende, og man bliver hurtig god til det fordi man skal snakke det hele tiden, i det land man nu er i. 
+Her ned kan du se andre eksempler på fordele ved at tage på udveksling.
+
+1. Uddannelse
+- Som der er skrevet op over, er en af de største fordel ved udveksling at man bliver undervist på et andet sprog men også man lære andre måder at lave f.eks. matematik på, det kan nemmelig godt blive nødvendigt senere hen i livet.
+2.
