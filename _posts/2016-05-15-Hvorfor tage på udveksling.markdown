@@ -13,9 +13,19 @@ Nu hvor vi er igang med skolen er det også godt af vide, hvorfor det er en smar
 Fordi når du går på skole i et andet lande, vil det hele klart være anderleds end her i Danmark. 
 Undervisning vil sikker forgår i et andet sprog, det mest normale er engelsk, og det kan godt komme til at give dig en fordel senere hen i livet. 
 
-Fordi når man skal på universitet forgår undevising sikkert på engelsk, og der har du en fordel fordi du har jo prøvet der før, med at undervisning ikke forgår i det sprog du er vant til fra folkeskolen. Det er måske ikke den største fordel med det er en af dem. De andre fordele ved at være udvekslingstudent, er man lære måske et helt nyt sprog at kende, og man bliver hurtig god til det fordi man skal snakke det hele tiden, i det land man nu er i. 
-Her ned kan du se andre eksempler på fordele ved at tage på udveksling.
+Fordi hvis man skal på universitet forgår undevisning sikkert på engelsk, og der har du en fordel fordi du har jo prøvet det med at undervisning ikke er på dit egent sprog. Det er måske ikke den største fordel men det er en af dem.
+Her ned af en liste over fordele ved at tage på udveksling.
 
 1. Uddannelse
 - Som der er skrevet op over, er en af de største fordel ved udveksling at man bliver undervist på et andet sprog men også man lære andre måder at lave f.eks. matematik på, det kan nemmelig godt blive nødvendigt senere hen i livet.
-2.
+2. Ny kultur 
+- At vælge at komme på udveksling kan det godt være at man vælger at tage til en helt anden kultur end dem man er vant til. Det er kun en fordel hvis man gøre det, fordi man starte faktisk det hele med udveksling fordi man syntes at unge mennesker skulle få en bedre forståelse for en anden kultur. Er det ikke også virkelig sejt at kunne komme et super sejt fact til dine venner om et andet land og hvis man vælger en helt anden kultur end dem man er vant til, har man sikkert mere at snakke om med dem der fra.
+3. Venner
+- At tage på udveksling er fantatiske måde at lære nye folk at kende, det kan være andre udvekslingselever eller folk fra selve landet du er i. Fleste af dem der har været på udveksling siger at de venner de har fået fra udveksling er nogen de stadig snakker med, og de snakker stadig med deres værtsfamilie
+4. Du er med til at sprede viden om en anden kultur.
+- Du er af en dem der kan prale af at du kender mere til kulturen i et land.
+. Men også er du med til at skabe mere kulturmåde i hverdagen, som kun er godt, fordi på den måde kan man måske lære at leve i verden hvor vi ikke dommer så hårdt. Har du måske ikke en fordomme om nogle mennesker fra et andet? Tænk på udveksling er en god mulighed for at se om fordommen er rigtig. 
+5. Dig selv
+- På udveksling kommer du til at lære dig selv bedre kende, måske kan det være at du finder noget du er virkelig god til, eller noget du ikke er så god til. 
+
+Det her nogle fordel jeg synes der er ved udveksling men måske har du nogen andre eller nogen flere fordele end jeg lige kan komme på. 
