@@ -5,6 +5,8 @@ date:       2016-05-09 12:00:00
 author:     "Ann-Cathrine Thrane"
 header-img: "img/worldmap.jpg"
 ---
+Tips til udveksling
+
 Hvordan for man den bedste oplevelse. Her på siden kan du finde ud af alt det du har brug for og meget mere.
 Så derfor har jeg fundet 7 gode råd til dig, der skal på udveksling.
 
