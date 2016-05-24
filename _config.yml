@@ -1,7 +1,7 @@
 # Site settings
 title: Info om udveksling
 header-img: img/worldmap1.jpg
-email: your-email@yourdomain.com
+email: annx2997@5500middelfart.dk
 copyright_name: Ann-Cathrine Thrane
 description: "Write your site description here. It will be used as your sites meta description as well!"
 baseurl: "/blog"
@@ -9,7 +9,7 @@ url: "http://ann-cathrine.github.io/"
 twitter_username: SBootstrap
 github_username:  davidtmiller
 facebook_username:  IronSummitMedia
-email_username:  your-email@yourdomain.com
+email_username:  annx2997@5500middelfart.dk
 
 # Build settings
 markdown: kramdown
